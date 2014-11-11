@@ -4,6 +4,9 @@
 为了那些没去上课的同学准备
 
 王与琛学神版权所有
+<img src="http://zgqathit.qiniudn.com/IMG_1030.jpg" width=100%>
+
+
 
 ## 第一章
 
